@@ -26,7 +26,6 @@ If you're working on something interesting in **Competitive Programming, AI, ML,
 
 **Always open to new ideas, collaborations, hackathons, research, and opportunities.** 🚀
 
-## 🌐 Socials:
 
 ## 🌐 Socials:
 
